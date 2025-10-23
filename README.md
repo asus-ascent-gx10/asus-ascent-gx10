@@ -1,0 +1,1 @@
+# asus-ascent-gx10
